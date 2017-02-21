@@ -1,4 +1,4 @@
-# Economics-and-Management-I-E-O-RGANIZATIONS-IN-AN-OUT---SIDE-WORLD
+# Economics-and-Management-I-E-ORGANIZATIONS-IN-AN-OUT-SIDE-WORLD-2016
 Paper
 
 
